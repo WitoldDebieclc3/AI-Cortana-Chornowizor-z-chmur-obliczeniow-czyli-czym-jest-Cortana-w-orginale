@@ -1,0 +1,1 @@
+# AI-Cortana-Chornowizor-z-chmur-obliczeniow-czyli-czym-jest-Cortana-w-orginale
